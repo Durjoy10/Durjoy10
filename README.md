@@ -42,6 +42,7 @@ I'm open to collaboration and excited about contributing to innovative projects.
 - Twitter: [@Durjoydey11] (https://twitter.com/Durjoydey11)
 - Linkedin: [Durjoy Dey] (https://www.linkedin.com/in/durjoydey10/)
 - Email: durjoydey10@gmail.com
+- Portfolio: (https://flowcv.me/durjoydey)
   
 
 Looking forward to connecting with fellow developers and creating a digital future together! 🚀✨
